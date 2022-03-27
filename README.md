@@ -5,4 +5,6 @@
 
 ### If you are feeling upset, just chill with this game and catch some flying cows that got drunk with redbull 🤣
 
+There are no rules, and no winners or losers. Actually the game never ends. Just have fun catching some cows.
+
 This game was an academic challenge by <Academia_de_codigo_>
